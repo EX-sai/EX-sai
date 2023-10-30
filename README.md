@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EX-sai
+- 👋 Hi, I’m @saidalli chukka
 - 👀 I’m interested in developing reports using different reporting tools . I want to be a data analyst.
 - 🌱 I’m currently pursuing my master's in computer science at Lewis University. 
 - 💞️ I’m looking to get a job in top mncs. After I need to do the start-up. 
